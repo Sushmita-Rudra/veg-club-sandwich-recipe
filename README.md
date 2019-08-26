@@ -26,9 +26,10 @@ I would like to share it's recipe here.
 
 # ![clubsandwich](http://pngimg.com/uploads/burger_sandwich/burger_sandwich_PNG4150.png)
 
-This is how you can prepare a delicious vegetable club sandwich within 15 minutes
 
-## Here are some useful links :
+This is how you can prepare a delicious vegetable club sandwich within 15 minutes. It is easy to prepare and a very good healthy option.
+
+## Here are some useful links for differnt spices and picture credits :
 - #### [Spices-herbs-seasonings](https://www.spicesinc.com/t-list-of-spices.aspx)
 - #### [whole-wheat-bread](https://upload.wikimedia.org/wikipedia/commons/thumb/9/97/Stale_bread.jpg/800px-Stale_bread.jpg)
 - #### [veg-club-sandwich-outcome](http://pngimg.com/uploads/burger_sandwich/burger_sandwich_PNG4150.png)
