@@ -23,6 +23,7 @@ I would like to share it's recipe here.
 - Add some salt and pepper to it. You can also add any seasonings of your liking.
 - Place lettuce on bread slices and gently put all the stir fried vegetables on it.
 - Place a slice of cheese and finally add mayo sauce.
+- For more seasonings and toppings please find the link here : [Seasonings link](https://www.thekitchn.com/spice-up-a-boring-sandwich-7-ideas-for-flavored-mayonnaise-194925 "click here for more seasonings")
 
 # ![clubsandwich](http://pngimg.com/uploads/burger_sandwich/burger_sandwich_PNG4150.png)
 
@@ -33,3 +34,5 @@ This is how you can prepare a delicious vegetable club sandwich within 15 minute
 - #### [Spices-herbs-seasonings](https://www.spicesinc.com/t-list-of-spices.aspx)
 - #### [whole-wheat-bread](https://upload.wikimedia.org/wikipedia/commons/thumb/9/97/Stale_bread.jpg/800px-Stale_bread.jpg)
 - #### [veg-club-sandwich-outcome](http://pngimg.com/uploads/burger_sandwich/burger_sandwich_PNG4150.png)
+
+![Thankyou](https://upload.wikimedia.org/wikipedia/commons/c/c0/Thank_You%21.jpg "Thankyou")
